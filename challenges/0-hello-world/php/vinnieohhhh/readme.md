@@ -6,7 +6,7 @@
 
 **Nível Técnico:** - Estudante
 
-**Twitter**: https://twitter.com/danielhe4rt (opcional)
+**Twitter**:
 
 **Dificuldade de Resolução:** - Baixa
 
